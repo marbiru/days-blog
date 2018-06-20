@@ -1,1 +1,1 @@
-Blog for the site DaysOld.com
+Thoughts about days, from the makers of www.DaysOld.com
